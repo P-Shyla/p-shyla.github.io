@@ -1,1 +1,0 @@
-# skwurmi-wurmi-gaiden
